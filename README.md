@@ -1,1 +1,2 @@
-# 3J-2-Projeto
+# Projeto 3_Tri
+Maria Eduarda N 26
